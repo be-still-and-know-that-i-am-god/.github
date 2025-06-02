@@ -1,1 +1,3 @@
-# .github
+# *Be Still and Know That I Am God – A Spiritual Journey to Inner Peace*
+# *In a world full of noise, distractions, and endless tasks, the timeless phrase “Be still and know that I am God” (Psalm 46:10) calls us back to our spiritual center. This powerful verse is more than just poetic scripture—it's a divine invitation to pause, reflect, and reconnect with the Source of all peace.*
+# *Here are 15 soul-stirring insights to help you dive deeper into this life-transforming truth.* [More details…](https://spiritualkhazaana.com/web-stories/be-still-and-know-that-i-am-god-a-spiritual-journey-to-inner-peace/)
